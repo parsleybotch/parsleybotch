@@ -8,7 +8,7 @@
 ![alt text](https://github.com/user-attachments/assets/5927aeca-fe3f-4d55-996e-2873c30d7ac4)
 
 
-${\textsf{\color{#a74254} “it tastes like...Martin—I-I mean }}$ ${\textsf{\color{#a74254} martinis. Oh well, it's the thought that }}$ ${\textsf{\color{#a74254} counts, you know...." }}$
+<p align="center">${\textsf{\color{#a74254} “it tastes like...Martin—I-I mean }}$ ${\textsf{\color{#a74254} martinis. Oh well, it's the thought that }}$ ${\textsf{\color{#a74254} counts, you know...." }}$
 
 - meat lover 👀 __NONSHARING SHIPPERS__ pls block or sum ok! ^_^ I don't care if you like him too low-key idfk
 
