@@ -3,7 +3,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=rightfulheir&label=Hi%20There!&color=a03741&style=flat" alt="parsleybotch" /> </p>
 
 <img width="768" height="768" alt="1000218011" src="https://github.com/user-attachments/assets/88ab372c-b628-4198-9f27-e69aa060c356" />
-         ʚℎ𝑢𝑠𝑏𝑎𝑛𝑑 𝑜𝑓 𝑡ℎ𝑒 𝑦𝑒𝑎𝑟ɞ ᰔᩚ
+<p align="center">ʚℎ𝑢𝑠𝑏𝑎𝑛𝑑 𝑜𝑓 𝑡ℎ𝑒 𝑦𝑒𝑎𝑟ɞ ᰔᩚ
 
 ![alt text](https://github.com/user-attachments/assets/5927aeca-fe3f-4d55-996e-2873c30d7ac4)
 
