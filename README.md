@@ -18,5 +18,5 @@ ${\textsf{\color{#a74254} “it tastes like...Martin—I-I mean }}$ ${\textsf{\c
 him and his boyfriend Dallas ig :-/
 
 ## CREDS
-- geodesick ON TUMBLR i edited it a bit but it's still theirs
+- geodesick ON TUMBLR 💜
 - Limbolane themselves დ
