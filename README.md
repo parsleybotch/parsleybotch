@@ -8,6 +8,15 @@
 
 ${\textsf{\color{#a74254} “it tastes like...Martin—I-I mean }}$ ${\textsf{\color{#a74254} martinis. Oh well, it's the thought that }}$ ${\textsf{\color{#a74254} counts, you know...." }}$
 
-meat lover 👀 __NONSHARING SHIPPERS__ pls block or sum ok! ^_^ i may be greedy but i ain't that greedy
+- meat lover 👀 __NONSHARING SHIPPERS__ pls block or sum ok! ^_^ i may be greedy but i ain't that greedy
 
-my other husband is __Kahmunrah__ ok i take it back I'm THAT greedy
+- my other husband is __Kahmunrah__ ok i take it back I'm THAT greedy
+
+## __${\textsf{\color{#c3424b} I LOVE PARSLEY !!! }}$__
+
+<img width="1920" height="1080" alt="1000169180" src="https://github.com/user-attachments/assets/d1763219-7608-40f6-aba5-15d4059e0a7c" />
+him and his boyfriend Dallas ig :-/
+
+## CREDS
+- geodesick ON TUMBLR
+- Limbolane themselves დ
