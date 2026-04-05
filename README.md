@@ -17,7 +17,7 @@ ${\textsf{\color{#a74254} “it tastes like...Martin—I-I mean }}$ ${\textsf{\c
 ## __${\textsf{\color{#c3424b} I LOVE PARSLEY !!! ๑•͈ᴗ•͈๑ }}$__
 
 <img width="1920" height="1080" alt="1000169180" src="https://github.com/user-attachments/assets/d1763219-7608-40f6-aba5-15d4059e0a7c" />
-him and his boyfriend Dallas ig :-/
+<p align="center">him and his boyfriend Dallas ig :-/
 
 ## CREDS
 - geodesick ON TUMBLR 💜
