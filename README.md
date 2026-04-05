@@ -14,6 +14,8 @@
 
 - my other husband is __Kahmunrah__ ok I'm THAT greedy
 
+- I use tone tags a __LOT__.
+
 ## __${\textsf{\color{#c3424b} I LOVE PARSLEY !!! ๑•͈ᴗ•͈๑ }}$__
 
 <img width="1920" height="1080" alt="1000169180" src="https://github.com/user-attachments/assets/d1763219-7608-40f6-aba5-15d4059e0a7c" />
