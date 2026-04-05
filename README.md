@@ -1,6 +1,6 @@
 ## ${\textsf{\color{#942035} ✦ 𝕴'𝖒 𝖌𝖔𝖎𝖓𝖌 𝖙𝖔 𝖘𝖚𝖊 𝖞𝖔𝖚, }}$ ${\textsf{\color{#942035} 𝖚𝖓𝖋𝖔𝖗𝖙𝖚𝖓𝖆𝖙𝖊𝖑𝖞. }}$
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=parsleybotch&label=Hi%20There!&color=a03741&style=flat" alt="parsleybotch" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=rightfulheir&label=Hi%20There!&color=a03741&style=flat" alt="parsleybotch" /> </p>
 
 <img width="768" height="768" alt="1000218011" src="https://github.com/user-attachments/assets/88ab372c-b628-4198-9f27-e69aa060c356" />
          ʚℎ𝑢𝑠𝑏𝑎𝑛𝑑 𝑜𝑓 𝑡ℎ𝑒 𝑦𝑒𝑎𝑟ɞ ᰔᩚ
