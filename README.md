@@ -24,3 +24,9 @@
 ## CREDS
 - geodesick ON TUMBLR 💜
 - Limbolane themselves დ
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=313baxl2vgiwf33wz5jrz5pfd4he&cover_image=true&theme=spotify-embed&show_offline=false&background_color=c29fad&interchange=false&profanity=false&bar_color=800e3a&bar_color_cover=false&mode=dark">
+  </a>
+</p>
