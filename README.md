@@ -12,9 +12,11 @@
 
 - meat lover 👀 __NONSHARING SHIPPERS__ pls block or sum ok! ^_^ I don't care if you like him too low-key idfk
 
-- my other husband is __Kahmunrah__ ok I'm THAT greedy
+- my other husband is __Kahmunrah__ ok I'm THAT greedy (actually hes prolly aroace bro i have no chance)
 
 - I use tone tags a __LOT__.
+
+- mostly with friends at docks or alone, like, everywhere!!! I'm chronically online so hello if you saw me! Xx :-)
 
 ## __${\textsf{\color{#c3424b} I LOVE PARSLEY !!! ๑•͈ᴗ•͈๑ }}$__
 
