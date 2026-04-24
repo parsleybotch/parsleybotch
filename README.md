@@ -18,6 +18,8 @@
 
 - mostly with friends at docks or alone, like, everywhere!!! I'm chronically online so hello if you saw me! Xx :-)
 
+- __I do not like being covered unless we're close or friends ^_^'__
+
 ## __${\textsf{\color{#c3424b} I LOVE PARSLEY !!! ๑•͈ᴗ•͈๑ }}$__
 
 <img width="1920" height="1080" alt="1000169180" src="https://github.com/user-attachments/assets/d1763219-7608-40f6-aba5-15d4059e0a7c" />
