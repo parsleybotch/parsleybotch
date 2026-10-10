@@ -1,22 +1,22 @@
 ## ${\textsf{\color{#942035} ✦ 𝕴'𝖒 𝖌𝖔𝖎𝖓𝖌 𝖙𝖔 𝖘𝖚𝖊 𝖞𝖔𝖚, }}$ ${\textsf{\color{#942035} 𝖚𝖓𝖋𝖔𝖗𝖙𝖚𝖓𝖆𝖙𝖊𝖑𝖞. }}$
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=gaIlavich&label=Hi%20There!&color=a03741&style=flat" alt="parsleybotch" /> </p>
-
+<p align="center"> <a href="https://hits.sh/github.com/parsleybotch/parsleybotch/edit/main/README.md/"><img alt="Hits" src="https://hits.sh/github.com/parsleybotch/parsleybotch/edit/main/README.md.svg?style=flat-square&label=milkshakes&extraCount=2853&color=a03741&labelColor=b94c5f"/></a>
+  
 <img width="768" height="768" alt="1000218011" src="https://github.com/user-attachments/assets/88ab372c-b628-4198-9f27-e69aa060c356" />
 <p align="center">ʚℎ𝑢𝑠𝑏𝑎𝑛𝑑 𝑜𝑓 𝑡ℎ𝑒 𝑦𝑒𝑎𝑟ɞ ᰔᩚ
 
 ![alt text](https://github.com/user-attachments/assets/5927aeca-fe3f-4d55-996e-2873c30d7ac4)
 
 
-<p align="center">${\textsf{\color{#a74254} “it tastes like...Martin—I-I mean }}$ ${\textsf{\color{#a74254} martinis. Oh well, it's the thought that }}$ ${\textsf{\color{#a74254} counts, you know...." }}$
+<p align="center">${\textsf{\color{#a74254} “it tastes like...Martin—I-I mean}}$ ${\textsf{\color{#a74254} martinis. Oh well, it's the thought that}}$ ${\textsf{\color{#a74254} counts, you know...."}}$
 
 - meat lover 👀 __NONSHARING SHIPPERS__ pls block or sum ok! ^_^ I don't care if you like him too low-key idfk
 
-- my other husband is __Kahmunrah__ ok I'm THAT greedy (actually hes prolly aroace bro i have no chance)
+- Kahmunrah, Parsley and Candy Dealer yume ^^
 
 - I use tone tags a __LOT__.
 
-- mostly with friends at docks or alone, like, everywhere!!! I'm chronically online so hello if you saw me! Xx :-)
+- mostly alone, like, everywhere!!! I'm chronically online so hello if you saw me! Xx :-)
 
 - __I do not like being covered unless we're close or friends ^_^'__
 
